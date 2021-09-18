@@ -2,9 +2,8 @@
 
 <span style='background-color:#ffff8b;'>**कुछ स्त्रोत -**</span>
 
- - [x] मेरी दस उंगलियां: https://www.arvindguptatoys.com/arvindgupta/tenlittlefingers-h.pdf
-- [x] Gita for Women PODCAST: 
-https://podcasts.apple.com/in/podcast/gita-for-women/id1571089132
+ - [x] [मेरी दस उंगलियां](https://www.arvindguptatoys.com/arvindgupta/tenlittlefingers-h.pdf) 
+- [x] [Gita for Women PODCAST](https://podcasts.apple.com/in/podcast/gita-for-women/id1571089132)
  - [x] Chapter 12 BG AP scan. भेज दिया गया है पृथ्वी जी को। 
  
 ## आन्तरिक यात्रा
