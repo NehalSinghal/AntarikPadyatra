@@ -119,10 +119,10 @@
 25. We should keep **own intention pure**. That's all. 
 26. **Plan put on web. People can see.** 
 27. Remember more friends. So that those friends can be shared that plan. 
-28. **Whatsapp Group** can be made. Bombay friends. All contacts to be given to Prithvi (son). A separate group of yatra can be made. 
+28. **Telegram Group** can be made. Bombay friends. All contacts to be given to Prithvi (son). A separate group of yatra can be made. 
 29. Prithvi can send us contacts. Then gradually plan will consolidate over next 2-3 months. 
 30. Ujjain will not come in way. It's very far from journey route. 
-31. Whatsapp group people will also give suggestions. They will give advice and other places. 
+31. Telegram group people will also give suggestions. They will give advice and other places. 
 
 ### Places 
 
