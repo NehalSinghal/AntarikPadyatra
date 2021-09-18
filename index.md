@@ -1,13 +1,6 @@
-# श्री जयपाल सिंह चौहान जी (JPS)
+# Antarik Pad Yatra
 
-<span style='background-color:#ffff8b;'>**कुछ स्त्रोत -**</span>
-
- - [x] [मेरी दस उंगलियां](https://www.arvindguptatoys.com/arvindgupta/tenlittlefingers-h.pdf) 
-- [x] [Gita for Women PODCAST](https://podcasts.apple.com/in/podcast/gita-for-women/id1571089132)
- - [x] Chapter 12 BG AP scan. भेज दिया गया है पृथ्वी जी को। 
- 
 ## आन्तरिक यात्रा
-<details markdown='1'><summary>Expand / Collapse</summary>
 
 1. पांच पल्लव
 2.  शिवलिंग, अभिषेक करवाएंगे, दूध चढ़ेगा
@@ -55,14 +48,12 @@
 - ठंड राजस्थान में मिलेगी। 
 
 - पैदल चलने वाले को ठंड नहीं लगती। 
-</details>
 
 ## 2021-09-14 
-<details markdown='1'><summary>Expand / Collapse</summary>
 
 ### Planning 
 
-* Inputs by JPS 
+* Inputs by Shri Jaipal Singh Chauhan ji 
 
 1. Narsingh Mehta Mount Abu 
  2. Girnar Sidh log 
@@ -77,7 +68,7 @@
 11. Bernigaad, two kids, Lakhamandal view. Girls'hostel. Many statues in Lakhamandal. Virat Khoi in Lakhamandal. Big Shivlinga in Lakhamandal. 
 12. Mohan Sharma ji's mother conversation. Big festival. All women decorate. Drums. Temple priest. 
 13. Has not gone to Hanol. 
-14. People dance in civilized manner. They're way too ahead. Durga Ashtami. Dances till late night. Food prepared for JPS. 
+14. People dance in civilized manner. They're way too ahead. Durga Ashtami. Dances till late night. Food prepared for Shri Jaipal Singh Chauhan ji. 
 15. Jaanki chatti. Hanuman chatti. Lots of chattis. Reached Yamunotri. Swing. Some guy from MP or Rajasthan got some statue. 
 16. Bhandara by guy who got statue. 
 17. Some Bhattacharya ji from West Bengal. 
@@ -88,7 +79,7 @@
 22. Pine forest. Night experience. People met and disappeared. 
 23. Had to come to Tehri to meet Bahuguna ji. 
 24. Kaddukhaal. Actual activist being Treeman Vishveshwardatt Saklani ji. 
-25. JPS was welcomed everywhere. 
+25. Shri Jaipal Singh Chauhan ji was welcomed everywhere. 
 26. Feeling of bears in a place but didn't see. 
 27. Sometimes ate Buransh. But it heated the body in excess. 
 28. Treeman's nephew Kishori Lal ji
@@ -96,7 +87,7 @@
 30. Majgaon
 31. Sanskrit School Joshimath, some place in Dehradun too he is making. He will give his phone number. 
 32. He is good speaker. 
-33. Devsaali ji. Could be friend of Atul ji. He had school. Perhaps retired. His inlaws in JPS village. 
+33. Devsaali ji. Could be friend of Atul ji. He had school. Perhaps retired. His inlaws in Shri Jaipal Singh Chauhan ji village. 
 34. Ujjain priest. 
 
 * Inputs by Us
@@ -118,7 +109,7 @@
 15. नीति अलग है, माणा अलग है। वहां भालू होते हैं। अतुल सती के साथ जाना हुआ था। सुरई खोटा भी गए थे। वहां पोस्ट ऑफिस भी सड़क पर है। मलारी भी गए थे। खाली रास्ता है। बाद में मालूम चला था की भालू आता है। कोई आदमी नही आता। कोई नही आता। अतुल जी के साथ गए थे। दिन दिन में चले थे। भालू का बाद में पता चला था। 
 16. सब कुछ आत्म सन्तोष के लिए है। ज्यादा लोगों से जुड़ेंगे तो लोग यही पूछेंगे कौन सी संस्था से हैं, कौन से NGO से हैं। इसलिए अपने हाथ से अपने आत्म सन्तोष के लिए जितना हो जाए उतना बहुत है। 
 17. बहुत लोग कौतूहल वश या पर्यटन के लिए चलेंगे (यात्रा में)। जैसी जिसकी भावना। कोई समस्या नहीं है। 
-18. Helang to Joshimath shortcut? A shortcut used by JPS. 
+18. Helang to Joshimath shortcut? A shortcut used by Shri Jaipal Singh Chauhan ji. 
 19. TA battalion: Territorial Army
 20. "बद्रीनाथ में पेड़ लगें। पानी है। लेकिन बीज हो। मिट्टी हो।" यह कार्य तभी हो सकता है जब यह जन भावना से प्रेरित हो। 
 21. People visiting Badrinath are a lot. If people bring handfuls also then it'll be a lot. 
@@ -175,5 +166,5 @@ Hanuman Chatti
 
 Badrinath
 
-</details>
+
 
