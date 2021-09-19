@@ -12,7 +12,7 @@
  8. Food to Girls
  9. Plantation
 
-  <span style='background-color:#ffff8b;'>**Other Points**</span>
+### Other Points
 
   - Jaipur, Rakesh Saklani ji son of Treeman Vishveshvar Dutt Saklani ji.
 
@@ -25,7 +25,7 @@
  - **Personal: We don't want anything.**
 
  - Time of day: Food for girls.
-    
+
  - Morning, evening: Walk. 
 
    Don't stay in one place longer.
@@ -127,9 +127,7 @@
   30. Ujjain will not come in way. It's very far from journey route. 
   31. Telegram group people will also give suggestions. They will give advice and other places. 
 
-### Places
-
-  Tentative Route:
+### Tentative Route
 
   Dwarika
 
