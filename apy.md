@@ -56,7 +56,7 @@
 
 ### Plan
 
-  * Thoughts of Shri Jaipal Singh Chouhan ji
+  * Thoughts of a foot traveler (padyatri)
 
   1. Narsingh Mehta Mount Abu
    2. Girnar Siddha people
@@ -71,7 +71,7 @@
   11. Bernigaad, two kids, Lakhamandal view. Girls' hostel. Many statues in Lakhamandal. Virat Khoi in Lakhamandal. Big Shivlinga in Lakhamandal. 
 12. Mohan Sharma ji's mother conversation. Big festival. All women decorate. Drums. Temple priest. 
 13. Has not gone to Hanol. 
-14. People dance in civilized manner. They're way too ahead. Durga Ashtami. Dances till late night. Food prepared for Shri Jaipal Singh Chauhan ji. 
+14. People dance in civilized manner. They're way too ahead. Durga Ashtami. Dances till late night. Food prepared for padyatri. 
 15. Jaanki chatti. Hanuman chatti. Lots of chattis. Reached Yamunotri. Swing. Some guy from MP or Rajasthan got a statue. 
 16. Bhandara by guy who got statue. 
 17. Met one Bhattacharya ji from West Bengal. 
@@ -82,7 +82,7 @@
 22. Pine forest. Night experience. People met and disappeared. 
 23. Had to come to Tehri to meet reknowned environmentalist Sundarlal Bahuguna ji. 
 24. Sundarlal just advised to go to Pujar gaon below Kaddukhaal and meet real activist being Treeman Vishveshwardatt Saklani ji. 
-25. Shri Jaipal Singh Chauhan ji was welcomed everywhere. 
+25. The padyatri was welcomed everywhere. 
 26. Feeling of bears in a place but didn't see. 
 27. Sometimes ate Buransh flowers. But it heated the body in excess. 
 28. Treeman's nephew Kishori Lal ji
@@ -90,7 +90,7 @@
 30. Majgaon
 31. Sanskrit School Joshimath, some place in Dehradun too he is making.
 32. He is good speaker. 
-33. Devsaali ji. Could be friend of Atul ji. He had school. Perhaps retired. His in-laws in Shri Jaipal Singh Chauhan ji village. 
+33. Devsaali ji. Could be friend of Atul ji. He had school. Perhaps retired. His in-laws in padyatri's village. 
 34. Ujjain priest. 
 
 * Inputs by Us
@@ -112,7 +112,7 @@
  15. Niti is different, Maana is different. There are bears there. Trip with Atul Sati ji.  Had gone to Surai Khota also. There the post office is also on the road. Had gone too Malari. There is lonely road.  Later it was known that the bears come. No one comes. Went with Atul ji. Walked during day time. Got to know about bears coming later. 
  16. Everything is for self-purification.  If you connect with more people, then people will ask which organization they are from, which NGOs they are from.  Therefore, as much as you can for your self-satisfaction with your own hands do, it is enough.
  17. Many people will walk (in travel) out of curiosity or for tourism.  Each with own feeling. There is no problem.
-  18. Short route from Helang to Joshimath?  A short path used by Shri Jaipal Singh Chauhan ji.
+ 18. Short route from Helang to Joshimath?  A short path used by padyatri.
   19. TA Battalion: Territorial Army plants tree in Himalayas.
   20. "Plant trees in Badrinath. There is water. But seeds needed. Soil needed."  This work can be done only when it is motivated by public sentiment.
   21. People visit Badrinath are a lot. If people bring handful of mud also then it'll be a lot. 
